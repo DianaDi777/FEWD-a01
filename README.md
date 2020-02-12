@@ -19,6 +19,6 @@ Additionally, in 2018 I gained certificates in Project Management and Small Busi
 * International traveling 
 
 Here is a picture of me :
-![me in SF](https://www.instagram.com/p/B3VWa48hRyN/)
+![Best of Show San Diego County Fair](https://media-exp1.licdn.com/dms/image/C5622AQETXVXReQOoNA/feedshare-shrink_8192/0?e=1584576000&v=beta&t=Ht8ZgCaeb9Q-mJaoy-qPlNVo3vltVwaLu5tiuWCFYg0)
 
 I'll be happy if we stay in touch in LinkedIn [LinkedIn account](https://www.linkedin.com/in/diana-tikhonovskova-garcia-4a4b8019b/)
