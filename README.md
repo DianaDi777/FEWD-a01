@@ -18,7 +18,8 @@ Additionally, in 2018 I gained certificates in Project Management and Small Busi
 * Sailing
 * International traveling 
 
-Here is a picture of me :
+Here is a picture of me at San Diego County Fair with my artwork:
 ![Best of Show San Diego County Fair](https://media-exp1.licdn.com/dms/image/C5622AQETXVXReQOoNA/feedshare-shrink_8192/0?e=1584576000&v=beta&t=Ht8ZgCaeb9Q-mJaoy-qPlNVo3vltVwaLu5tiuWCFYg0)
+**Best of Show. Nomination - Publication Layout and Design. Students showcase**
 
 I'll be happy if we stay in touch in LinkedIn [LinkedIn account](https://www.linkedin.com/in/diana-tikhonovskova-garcia-4a4b8019b/)
